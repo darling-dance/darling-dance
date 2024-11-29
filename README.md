@@ -1,6 +1,16 @@
-## Hi there 👋
+## enerugii okurunda rabui! tokimeki! komete for you♡ "ai~ra bu!" ![](https://watermelon.crd.co/assets/images/gallery05/ceb417a4.gif?v=6332de85)![](https://watermelon.crd.co/assets/images/gallery03/8605e50c.gif?v=6332de85)
+
+- **anhi** *or* aira/niki/natsume! :3
+- **she**/he
+- [base dni](https://basicdnii.carrd.co/#s2) + ppl under 14. i'm not a minor myself
+
+![](http://d.zaix.ru/Kdkd.png)
+
+![](https://watermelon.crd.co/assets/images/gallery21/09ee94ae.gif?v=6332de85) ![](https://watermelon.crd.co/assets/images/gallery22/26ee551b.gif?v=6332de85) ![](https://watermelon.crd.co/assets/images/gallery22/40f58432.gif?v=6332de85) ![](https://watermelon.crd.co/assets/images/gallery22/9ce10986.gif?v=6332de85)
+
 
 <!--
+## Hi there 👋
 **darling-dance/darling-dance** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
