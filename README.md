@@ -1,8 +1,10 @@
 ## enerugii okurunda rabui! tokimeki! komete for you♡ "ai~ra bu!" ![](https://watermelon.crd.co/assets/images/gallery05/ceb417a4.gif?v=6332de85)![](https://watermelon.crd.co/assets/images/gallery03/8605e50c.gif?v=6332de85)
 
-- **anhi** *or* aira/niki/natsume! :3
-- **she**/he
-- [base dni](https://basicdnii.carrd.co/#s2) + ppl under 14. i'm not a minor myself
+THIS IS A THINGY FOR PONY TOWN NORMAL PEOPLE IGNORE THIS!!!
+
+- english is not my first language. *i can take time to respond and don't know how to make small talk*
+- *yes i'm mostly silently observing people don't mind me*. be patient i'm autistic. use tonetags pls
+- be decent it isn't hard!! [base dni](https://basicdnii.carrd.co/#s2) + ppl under 14 limit your interactions. i'm not a minor
 
 ![](http://d.zaix.ru/Kdkd.png)
 
