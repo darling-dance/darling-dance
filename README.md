@@ -1,14 +1,9 @@
-## enerugii okurunda rabui! tokimeki! komete for you♡ "ai~ra bu!" ![](https://watermelon.crd.co/assets/images/gallery05/ceb417a4.gif?v=6332de85)![](https://watermelon.crd.co/assets/images/gallery03/8605e50c.gif?v=6332de85)
-
-THIS IS A THINGY FOR PONY TOWN NORMAL PEOPLE IGNORE THIS!!!
-
-- english is not my first language. *i can take time to respond and don't know how to make small talk*
-- *yes i'm mostly silently observing people don't mind me*. be patient i'm autistic. use tonetags pls
-- be decent it isn't hard!! [base dni](https://basicdnii.carrd.co/#s2) + ppl under 14 limit your interactions. i'm not a minor
-
-![](http://d.zaix.ru/Kdkd.png)
-
-![](https://watermelon.crd.co/assets/images/gallery21/09ee94ae.gif?v=6332de85) ![](https://watermelon.crd.co/assets/images/gallery22/26ee551b.gif?v=6332de85) ![](https://watermelon.crd.co/assets/images/gallery22/40f58432.gif?v=6332de85) ![](https://watermelon.crd.co/assets/images/gallery22/9ce10986.gif?v=6332de85)
+<p align="center">
+  enerugii okurunda rabui! tokimeki! komete for you♡ "ai~ra bu!" <img src="https://watermelon.crd.co/assets/images/gallery05/ceb417a4.gif?v=6332de85"><img src="https://watermelon.crd.co/assets/images/gallery03/8605e50c.gif?v=6332de85">
+<br>
+<img src="http://d.zaix.ru/Kdkd.png" width="400px">
+<br>
+<img src=https://watermelon.crd.co/assets/images/gallery21/09ee94ae.gif?v=6332de85> <img src=https://watermelon.crd.co/assets/images/gallery22/26ee551b.gif?v=6332de85><br><img src=https://watermelon.crd.co/assets/images/gallery22/40f58432.gif?v=6332de85> <img src=https://watermelon.crd.co/assets/images/gallery22/9ce10986.gif?v=6332de85>
 
 
 <!--
