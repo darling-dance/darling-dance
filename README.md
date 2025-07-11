@@ -1,3 +1,14 @@
+<p align=center>dont wanna make a rentry so heres my ponytown info lol</br>
+hioo!! <strong>anhi</strong> or just call me by my cosplay char : she/he : adult</br>
+</p>
+  
+<p align=center><img src=https://64.media.tumblr.com/3cd6eaa43e667c7a9e687710e9df0cc4/0ca0ef7554fde89c-90/s250x400/b1425cabddb687d03f6214a5481cb91cbff1892d.gifv><img src=https://64.media.tumblr.com/a5f396806d3d170e6024fef4c8ea801a/0ca0ef7554fde89c-a0/s250x400/3f26e442cc5c17c3e36396c359d3263a621b1219.gifv><img src=https://64.media.tumblr.com/3c05821a170b7f5bbadbe04d983c9dd6/0ca0ef7554fde89c-31/s250x400/5bed68c3a4c5c753b2fe1f94073bbaca3ff3c149.gifv><img src=https://64.media.tumblr.com/d2ea16106e4a68b934de9296c6369c45/0ca0ef7554fde89c-f5/s250x400/d50b305180eb85d28e8c6c25a0c145caf4914ab9.gifv></br>
+<img src="http://d.zaix.ru/PcMq.png" title="cr lolmuffincats on x" width="600px"></br>
+<img src=https://64.media.tumblr.com/33df89a383a78edbade2c6d872e4ecc1/b18aff3ce9323114-08/s250x400/996beaeaacaaee707c01c7d9e2152074fc1e701c.gifv><img src=https://64.media.tumblr.com/a5b6d35bc8b1c89e64033355ccba4b79/321aa268678c99b9-4c/s250x400/f089d536ab70b8c8afd278f3fe9209b4310c0339.gifv><img src=https://64.media.tumblr.com/4faa4f4104fc402c875224786de34be4/321aa268678c99b9-c7/s250x400/a03f007399245f66fdf7a6831b698788d3c06915.gifv><img src=https://64.media.tumblr.com/c8215ecb96efcfbe2a0476143745c583/b18aff3ce9323114-33/s250x400/e7ff04c259a04e32c4a92aeca9f9b60ff5d20819.gifv>
+</p>
+
+
+<!--
 <p align="center">
 <img src="http://d.zaix.ru/Kdkd.png" width="400px">
 <br>
@@ -14,8 +25,6 @@
   <img src=https://64.media.tumblr.com/6dc6cec4b420372368c4340ab0fb69df/291b57fc1bf1e0d5-58/s100x200/64676e36986d82a6bedb38d089aca1f658dca03f.gifv><img src=https://44.media.tumblr.com/5077364f3c616cfcac0863a3b6f4d2fe/f1413ef45abf2485-af/s250x250_c1_f1/653bae0e38eded7bd9083b80f72e881bf44239ae.gifv><img src=https://44.media.tumblr.com/a058b6df5803aceaa24048ab4b77cb34/f1413ef45abf2485-3b/s250x250_c1_f1/23cf336d29bdab08b6a4af51911672de5c55597a.gifv><img src=https://44.media.tumblr.com/e70a1a06f3f38803ff548d5d80a952df/f1413ef45abf2485-98/s250x250_c1_f1/a3e0b5d682548ca93b4b2d332648193b764bb1ec.gifv>
 </p>
 
-
-<!--
 ## Hi there 👋
 **darling-dance/darling-dance** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
